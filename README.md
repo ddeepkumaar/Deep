@@ -2,8 +2,8 @@ Hi there!
 
 
 
-https://www.meesho.com/s/p/7fdryu?utm_source=s_w
+I launched PK to you, dare to challenge?
+Who's the Spy, Draw & Guess, Werewolf and other popular games, come and play!
+https://weplay.run/I/qpVvyw
 
-
-
-https://www.meesho.com/s/p/b3j1yg?utm_source=s_cc
+YYKHZD
